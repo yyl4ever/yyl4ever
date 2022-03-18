@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yyl4ever, my email: 1591884898@qq.com
+- 👋 Hi, I’m yyl4ever, my email: 1591884898@qq.com
 - 👀 I’m interested in coding, reading, listening to music
 - 🌱 I’m currently learning how to study, manage and improve myself
 - 💞️ I’m looking to collaborate on a big company with professional people
